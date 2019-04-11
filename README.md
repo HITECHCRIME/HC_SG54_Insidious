@@ -11,3 +11,4 @@ inside yourself
 i don't wanna go
 i don't wanna go 
 inside your(my) mind anymore
+i know i know
