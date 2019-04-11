@@ -21,3 +21,7 @@ inside my mind anymore
 i don't know i know know
 
 ```
+
+## Notes
+
+Annfran main/back vocal.
